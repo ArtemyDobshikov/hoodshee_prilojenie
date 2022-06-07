@@ -1,1 +1,0 @@
-# hoodshee_prilojenie
